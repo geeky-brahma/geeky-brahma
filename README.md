@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **sahoobrahma29@gmail.com**
 
-- 📄 Know about my experiences [Resume]([https://drive.google.com/file/d/1MmuaAXV4LKmyxOv7VF0yvPHuPiS2QB7x/view?usp=sharing](https://drive.google.com/file/d/145g0pCJEc-Hcof7yeuIhh3IISf8alynR/view?usp=sharing))(https://drive.google.com/file/d/145g0pCJEc-Hcof7yeuIhh3IISf8alynR/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/145g0pCJEc-Hcof7yeuIhh3IISf8alynR/view?usp=sharing)
 
 - ⚡ Fun fact **I'm a quick study when it comes to learning new tech.**
 
